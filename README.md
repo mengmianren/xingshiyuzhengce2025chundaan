@@ -1308,3 +1308,12 @@ D、对话的文明观，强调对话而不是对抗，沟通而不是脱钩
 
 **答案：**
 
+* * *
+
+**如需查看完整答案，请点击下方链接**
+
+[**点击这里,查看完整版答案①**](http://www.mengmianren.com/zhihuishu2020x/52949.html)
+
+[**点击这里,查看完整版答案②（阿布查查网站，更好用）**](http://mooc.bdnz.net/chaoxingeryaxuexitongdaan/17968.html)
+
+* * *
